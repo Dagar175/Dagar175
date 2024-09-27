@@ -1,3 +1,4 @@
+![Ayush Dagar](https://github.com/Dagar175/Dagar175/blob/main/masterhead.png)
 
 ### 𝐇i 👋 𝐭𝐡𝐞𝐫𝐞, 𝐟𝐞𝐥𝐥𝐨𝐰 <𝚍𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛𝚜/>! I'm A. Dagar
 ### 🐞Bug Hunter, 🎯Solution Founder
